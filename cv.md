@@ -3,7 +3,7 @@
 ## Contacts:
 
 - Email: farrukhx50@gmail.com
-- Tel: +79991345186
+- Phone: +79991345186
 - Telegram: @farrukh_rma
 
 ## About myself:
